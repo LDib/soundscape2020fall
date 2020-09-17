@@ -1,1 +1,1 @@
-This is the future site of Lucas's soundscape narrative.
+This is the site of Lucas's soundscape narrative, entitled "It Gets Easier."
